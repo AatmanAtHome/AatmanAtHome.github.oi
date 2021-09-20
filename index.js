@@ -1,1 +1,1 @@
-aatman is fucking gay omfg
+ok
